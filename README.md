@@ -1,4 +1,4 @@
-# Ayunda Risu、Moona Hoshinova、Airani Iofifteen、Kureiji Ollie、Anya Melfissa、Pavolia Reine、Vestia Zeta、Kaela Kovalskia、Kobo Kanaeru – Senandung Jiwa
+# Ayunda Risu, Moona Hoshinova, Airani Iofifteen, Kureiji Ollie, Anya Melfissa, Pavolia Reine, Vestia Zeta, Kaela Kovalskia, and Kobo Kanaeru – Senandung Jiwa
 
 > **歌詞登録ステータス：同期歌詞あり**
 
